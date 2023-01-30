@@ -1,2 +1,2 @@
 # 6companies30days
-Challenge initiated by Arsh Goyal
+https://docs.google.com/document/d/1v_bPMX4h9MNA1TUpx3aPZEXAKixWsCSQ/edit
